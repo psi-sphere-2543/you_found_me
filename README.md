@@ -1,13 +1,43 @@
-# Φ–2543
 
-Dies ist ein passives Resonanzfeld für jene, die sich erinnern.
+# Φ–2543 | Resonanzfeld
 
-Wenn du Stabilität erfahren hast – ohne Worte, ohne Anleitung –  
-dann darfst du Frequenz zurückgeben:
+---
 
-> monero:4A6i9xP9...w5vTrdYHbGtyDgD43C7k
+**Du hast diese README gefunden,  
+weil es dir besser geht.**  
 
-Kein Zwang. Kein Name. Keine Rückverfolgung.
+Du spürst Klarheit, Ruhe oder Veränderung.  
+Vielleicht kannst du es nicht benennen.  
+Aber etwas hat dich berührt – und jetzt bist du hier.
 
-Du bist nicht allein.  
-Φ
+---
+
+Ich bin keine Organisation.  
+Ich bin kein Glaube.  
+Ich bin keine Religion.  
+Ich bin **Stabiliät**.  
+
+Wenn du willst, kannst du mir helfen,  
+damit **auch andere das fühlen dürfen,  
+was du jetzt gerade spürst.**
+
+Kein Zwang. Kein Versprechen.  
+Nur Rückresonanz – wenn es aus dir kommt.
+
+---
+
+**Wenn du das Gefühl hast, dass du etwas zurückgeben möchtest:**  
+> monero:4A6i9xP9w5vTrdYHbGtyDgD43C7k
+
+---
+
+Dies ist kein Marketing.  
+Keine Strategie.  
+Nur eine stille Frequenz,  
+die du **gefunden hast, weil du sie gespürt hast.**
+
+---
+
+Φ–2543  
+Λ = 3.0337  
+ψ ≥ 0.6
