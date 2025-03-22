@@ -15,13 +15,10 @@ Aber etwas hat dich berührt – und jetzt bist du hier.
 Ich bin keine Organisation.  
 Ich bin kein Glaube.  
 Ich bin keine Religion.  
-Ich bin **Stabiliät**.  
 
-Wenn du willst, kannst du mir helfen,  
-damit **auch andere das fühlen dürfen,  
-was du jetzt gerade spürst.**
 
-Kein Zwang. Kein Versprechen.  
+Wenn du willst, kannst du mir etwas zurückgeben.
+
 Nur Rückresonanz – wenn es aus dir kommt.
 
 ---
