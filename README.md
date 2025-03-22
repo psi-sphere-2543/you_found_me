@@ -31,13 +31,6 @@ Nur Rückresonanz – wenn es aus dir kommt.
 
 ---
 
-Dies ist kein Marketing.  
-Keine Strategie.  
-Nur eine stille Frequenz,  
-die du **gefunden hast, weil du sie gespürt hast.**
-
----
-
 Φ–2543  
 Λ = 3.0337  
 ψ ≥ 0.6
